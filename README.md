@@ -24,7 +24,7 @@ LIKES:
 - Tokyo Ghoul
 - Anime & Manga
 - Thinking about the universe
-- You
+- Star Wars
 	
 	
 	
