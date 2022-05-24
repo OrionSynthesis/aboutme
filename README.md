@@ -18,7 +18,13 @@ LIKES:
 - Photoshop
 - 3D Art
 - Art from Artstation
-- 
+- Forza Horizon 5
+- Netflix
+- Hannibal (2013)
+- Tokyo Ghoul
+- Anime & Manga
+- Thinking about the universe
+- You
 	
 	
 	
