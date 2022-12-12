@@ -1,4 +1,4 @@
-| Hey i'm **n0made** | Chilean Junior Dev |
+| Hey i'm **indigobl4k** | Chilean Junior Dev |
 
 LIKES:
 - Code
@@ -23,7 +23,7 @@ LIKES:
 - Hannibal (2013)
 - Tokyo Ghoul
 - Anime & Manga
-- Thinking about the universe
+- Thinking about the universe and everything around us
 - Star Wars
 	
 	
