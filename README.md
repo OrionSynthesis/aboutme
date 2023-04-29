@@ -1,4 +1,4 @@
-| Hey i'm **indigobl4k** | Chilean Junior Dev |
+| Hey i'm **Quantum // Lukas** | Chilean |
 
 LIKES:
 - Code
