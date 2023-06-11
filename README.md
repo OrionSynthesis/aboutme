@@ -1,4 +1,4 @@
-| Hey i'm **Quantum // Lukas** | Chilean |
+| Hey i'm **Inaros // Lukas** | Chilean |
 
 LIKES:
 - Code
@@ -25,7 +25,7 @@ LIKES:
 - Anime & Manga
 - Thinking about the universe and everything around us
 - Star Wars
-	
+- Constantly changes names
 	
 	
 	
