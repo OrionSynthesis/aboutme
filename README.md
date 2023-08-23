@@ -1,4 +1,4 @@
-| Hey i'm **Orion // Lukas** | Chilean |
+| Hey i'm **Lukas** | Chilean |
 
 LIKES:
 - Code
